@@ -35,740 +35,84 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The history of S. Elizabeth daughter of the King of Hungary According to sundry authours who haue au
+
+1. To the Right honourable the Lady MARY TENHAM.
+
+1. TO THE READER.
+THE TABLE OF THE FIRST Booke.CHAP. I. THE Parents, Birth, Infancy, & Espousalles of Elizabeth. Chap.
 #####Body#####
+The Parents, Birth, Infancy, & Espousalls of Elizabeth. CHAP. I.HVNGARY, the vtmost Thuly of the Tur
+    _ The Parents, Birth, Infancy, & Espousalls of Elizabeth. CHAP. I.
 
-1. The Parents, Birth, Infancy, & Espousalls of Elizabeth. CHAP. I.
+    _ THE PRETY SPORTS AND Entertaynements of Elizabeth in her Childhood: the Death of the Prince her Father in Law, and the deuotion she vsed. CHAP. II.
 
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
+    _ HOVV ELIZABETH VVAS contemned by Sophia, and Agnes her Mother, and Sister in Law; with the rest of the Court. CHAP. III.
 
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
+    _ HOW THE YOVNG PRINCE, Lewes declared his affiction to Elizabeth, not withstanding the malignity of her Aduersaryes. CHAP. IIII.
 
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
+    _ HOw ELIZABETH BEING maryed, remitted not her deuotions a whit; and how shee caryed her self in her Mortifications. CHAP. V.
 
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
+    _ HOVV ELIZABETH SVBMITS her self to the Obedience of one Conrad, a religious Priest: and what followed thereof. CHAP. VI.
 
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
+    _ HOVV ELIZABETH CONTEMnes all brauery and vanitie of Apparell, perswading other Ladyes to do the same. CHAP. VII.
 
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
+    _ WHAT CHARITY ELIZAbeth shewed to her Neighbour: & how shee gaue the Cloathes from her back to the poore. CHAP. VIII.
 
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
+    _ CERTAINE ADMIRABLE effects of Elizabeths affection to voluntary Ponerty: and the works she wrought in that kind. CHAP. IX.
 
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
+    _ THE DEVOVT AND pious exercises of Elizabeth, at the Sacrifice of the Masse. CHAP. X.
 
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
+    _ OF THE GREAT CHARITY of Elizabeth, to her neighbour, and her exceeding liberality to the poore. CHAP. XI.
 
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
+    _ OF A COMPLAINT MADE against Elizabeth, to her husband: With some examples of his Noble disposition therein. CHAP. XII.
+THE SECOND BOOKE.THE SECOND BOOKE OF THE LIFE OF S. ELIZABETH.The publishing of the Croysado, and thTHE SECOND BOOKE.
+    _ THE SECOND BOOKE OF THE LIFE OF S. ELIZABETH.
 
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
+      * The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
 
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
+      * HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
 
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
+      * THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
 
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
+      * HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
 
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
+      * THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
 
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
+      * ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
 
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
+      * HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
 
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
+      * HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
 
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
+      * HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
 
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
+      * HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
 
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
+      * HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
 
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
+      * A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
+THE THIRD BOOKE.THE THIRD BOOK OF THE HISTORY OF S. ELIZABETH.Of the exceeding Charity of S. ElizabeTHE THIRD BOOKE.
+    _ THE THIRD BOOK OF THE HISTORY OF S. ELIZABETH.
 
-1. THE PRETY SPORTS AND Entertaynements of Elizabeth in her Childhood: the Death of the Prince her Father in Law, and the deuotion she vsed. CHAP. II.
+      * Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
 
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
+      * HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
 
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
+      * THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
 
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
+      * OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
 
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
+      * THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
 
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
+      * HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
 
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
+      * THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
 
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
+      * THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
 
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
+      * A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
 
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. HOVV ELIZABETH VVAS contemned by Sophia, and Agnes her Mother, and Sister in Law; with the rest of the Court. CHAP. III.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. HOW THE YOVNG PRINCE, Lewes declared his affiction to Elizabeth, not withstanding the malignity of her Aduersaryes. CHAP. IIII.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. HOw ELIZABETH BEING maryed, remitted not her deuotions a whit; and how shee caryed her self in her Mortifications. CHAP. V.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. HOVV ELIZABETH SVBMITS her self to the Obedience of one Conrad, a religious Priest: and what followed thereof. CHAP. VI.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. HOVV ELIZABETH CONTEMnes all brauery and vanitie of Apparell, perswading other Ladyes to do the same. CHAP. VII.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. WHAT CHARITY ELIZAbeth shewed to her Neighbour: & how shee gaue the Cloathes from her back to the poore. CHAP. VIII.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. CERTAINE ADMIRABLE effects of Elizabeths affection to voluntary Ponerty: and the works she wrought in that kind. CHAP. IX.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. THE DEVOVT AND pious exercises of Elizabeth, at the Sacrifice of the Masse. CHAP. X.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. OF THE GREAT CHARITY of Elizabeth, to her neighbour, and her exceeding liberality to the poore. CHAP. XI.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. OF A COMPLAINT MADE against Elizabeth, to her husband: With some examples of his Noble disposition therein. CHAP. XII.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-THE SECOND BOOKE.
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. THE SECOND BOOKE OF THE LIFE OF S. ELIZABETH.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-THE THIRD BOOKE.
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
-
-1. THE THIRD BOOK OF THE HISTORY OF S. ELIZABETH.
-
-    _ The publishing of the Croysado, and the manner how it first beganne. CHAP. I.
-
-    _ HOVV THE CROYSADC being published anew, the Lantgraue secretly receiued the Crosse, and went to meete with the Emperour in Sicily. CHAP. II.
-
-    _ THE ARRIVAL OF THE Lantgraue in Sicily, where the Emperour was: his Death, and the Lamentation made by Elizabeth for him. CHAP. III.
-
-    _ HOW HENRY BROTHER to the deceased Lan•…graue vsurped the Dukedome: and eiected Elizabeth and her Children from al their▪ right. CHAP. IIII.
-
-    _ THE ESPECIALL FAVOVRS, and sweete consolations from God, which Elizabeth had in hearing of Masse, and otherwise. CHAP. V.
-
-    _ ELIZABET VISITSH her Aunt an Abbesse, and then her Vncle, the Bishop of Bamberg: who plotted to haue her marryed, but in vayne. CHAP. VI.
-
-    _ HOW THE BODY OF Prince Lewys was brought out of Sicily into Germany to bee buryed. CHAP. VII.
-
-    _ HOW THE NOBLEMEN expostulate with Prince Henry, and obteyne what they desire, and what Elizabeth did there vppon. CHAP. VIII.
-
-    _ HOW THE POPE TOOKE notice of Elizabeths Sanctity, and receiued her into his protection: and how she made her profession of the Third Order of Saint Francis. CHAP. IX.
-
-    _ HOW ELIZABETH BVILT her selfe a poore Cottage, while her howse was building in the Citty: and what a holy life she led afterwards. CHAP. X.
-
-    _ HOW CONRAD DISMISsed two of Elizabeths cheifest Mayds: and how strict a life she led in extreame pouerty. CHAP. XI.
-
-    _ A CERT AINE NOBLEM AN of Hungary endeauours in vayne to perswade Elizabeth to returne with him to her Father, & what acts of humility she shewed. CHAP. XII.
-
-    _ Of the exceeding Charity of S. Elizabeth towards her Neighbour, especially the sick: With her great humility. CHAP. I.
-
-    _ HOw ELIZABETH DEliuers the soule of the Queene her Mother from Purgatory, with her prayers only: and likwise procured the vocation of a certaine libertine vnto Religion. CHAP. II.
-
-    _ THE GREAT LIBERALITY and mercy of Elizabeth, shewed after she had recouered her portion into her hands. CHAP. III.
-
-    _ OF A CERTAINE ACCIDENT which shewed how Elizabeth had likewise the gift of Prophecy: With her charitable acts in relief of the poore. CHAP. IIII.
-
-    _ THE CHARITY OF Elizabeth to the Neighbour in spiritual mercyes: and particularly of her singular gift of Prayer. CHAP. V.
-
-    _ HOVV ELIS ABETH FELL sick, the manner of her sicknes: and of the happy end which shee made. CHAP. VI.
-
-    _ THE FVNERALL OFFICES of the glorious Elizabeth, are piously performed: With a touch onely of her singular vertues. CHAP. VII.
-
-    _ THE CANONIZATION of Saint Elizabeth: the Translation of her Body: and the beginning of the relation of her myracles. CHAP. VIII.
-
-    _ A CONTINVATION OF THE miracles wrought at the Shrine of S. Elizabeth after the Translation of her Body. CHAP. IX.
-
-    _ A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
+      * A TABLE COLLECTED of the eminent vertues and perfections of S. Elizabeth, concluding with a prayer to the Saint. CHAP. X.
 
 **Types of content**
 
